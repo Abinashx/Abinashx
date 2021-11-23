@@ -2,7 +2,7 @@
 - 👀 I’m interested in you 
 - 🌱 I’m currently learning how to survive 
 - 💞️ I’m looking to collaborate on my gulli gang 
-- 📫 How to reach me contact me on 6001511161
+- 📫 you can reach me on 6001511161
 
 <!---
 Abinashx/Abinashx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
